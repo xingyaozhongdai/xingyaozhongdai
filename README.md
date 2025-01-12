@@ -1,4 +1,6 @@
-## Hi there 👋
+## 如何找到和加入杏耀平台总代理？杏耀总代理|杏耀开户-杏耀平台
+
+<https://xingyaozhongdai.github.io>
 
 <!--
 **xingyaozhongdai/xingyaozhongdai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
